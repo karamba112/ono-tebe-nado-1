@@ -1,1 +1,1 @@
-https://github.com/karamba112/ono-tebe-nado-ad
+https://github.com/karamba112/ono-tebe-nado-1
